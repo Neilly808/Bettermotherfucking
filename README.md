@@ -1,1 +1,1 @@
-bettermotherfuckingwebsite.com
+https://neilly808.github.io/Bettermotherfucking/
